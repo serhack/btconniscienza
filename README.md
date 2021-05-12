@@ -1,2 +1,1 @@
-# btconniscienza
-La bitcoin onniscienza. 
+COMING SOON
